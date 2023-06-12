@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @anju34111
-- 👀 I’m interested in content writing
-- 🌱 I’m currently learning SEO
-- 💞️ I’m looking to collaborate on Content or blog writing
+- 👀 I’m interested in Coding
+- 🌱 I’m currently learning new languages
+- 💞️ I’m looking for new opportunities
 - 📫 Reach me at anjuc1547@gmail.com
 
 <!---
